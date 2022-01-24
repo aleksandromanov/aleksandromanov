@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @aleksandromanov
+- 👋 Hi, I’m Aleksandr Romanov
 - 📫 How to reach me@aleksandromanov.com
